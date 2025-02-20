@@ -1,1 +1,1 @@
-# Course-Project
+# Project - University
